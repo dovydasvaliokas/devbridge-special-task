@@ -1,0 +1,1 @@
+Užduotis neatlikta iki galo, tačiau įkeliu kiek pavyko padaryti (laiko stoka, kadangi tik pačiam gale užsiregistravau ir gavau užduotį)
